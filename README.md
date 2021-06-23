@@ -1,2 +1,2 @@
 # DELTA
-Keiya Nishio Keiya
+Keiya Nishio
